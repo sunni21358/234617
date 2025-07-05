@@ -21,4 +21,4 @@
 
 现在就加入我们，尽享高质量的日本AV免费资源，无需付费，永久免费更新！
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/sunni21358/234617 ）</span>
